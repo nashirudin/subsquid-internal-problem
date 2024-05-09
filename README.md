@@ -30,6 +30,12 @@ i have working hard with your project please help me and give my reward
 ![sub1](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/1d819c4a-02c7-48ed-9a9f-aea65b170dcd)
 
 ![sqd](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/666bc524-35f8-4c3b-ac37-3b4487722801)
+![squid(1)](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/6c85b780-db0f-4d63-aff0-6b2f4578099a)
+
+![photo_2024-05-09_16-06-41](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/4a59b81b-df45-4f38-bf7d-93c0e662c5dd)
+
+# Please consider it sir, I am very sad about this condition,
+
 
 
 
