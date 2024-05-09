@@ -18,13 +18,19 @@ i have working hard with your project please help me and give my reward
 <p>linkedin : @nashiruddin
 <p>youtube chnnel : https://www.youtube.com/@zizisweet </p>
 
+# my coinlist account
+
+![clll](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/782e7379-5d22-47ba-834a-c2b3d4e3394c)
+
 ![clll2](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/8031b47d-4974-43ec-87fb-e2eea4249f03)
 
 ![clll3](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/81b70b2e-998e-49ec-a56f-e10024e072ee)
 
-
-
-
+# my proof of work
 ![sub1](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/1d819c4a-02c7-48ed-9a9f-aea65b170dcd)
+
+![sqd](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/666bc524-35f8-4c3b-ac37-3b4487722801)
+
+
 
 
