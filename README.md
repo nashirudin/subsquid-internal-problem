@@ -18,6 +18,10 @@ i have working hard with your project please help me and give my reward
 <p>linkedin : @nashiruddin
 <p>youtube chnnel : https://www.youtube.com/@zizisweet </p>
 
+![clll2](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/8031b47d-4974-43ec-87fb-e2eea4249f03)
+
+![clll3](https://github.com/nashirudin/subsquid-coinlist-problem/assets/35358228/81b70b2e-998e-49ec-a56f-e10024e072ee)
+
 
 
 
