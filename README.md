@@ -2,13 +2,22 @@
 
 dear team and dev, i have join subsquid project before your discord got hacked and i am still trust your project, 
 currently i get winner for your testnet, i got rank 20 but i can't claim my reward i don't know conlist very difficulty to contacting support. 
-my detail :
-email subsquid : nruddin7@gmail.com
-email coinlist : karwekenam@gmail.com
-sub email : ariaprianto97@outlook.com
-my wallet testnet : 0xD0060dbfeCfddbf14995288021C91AEA2Ee9abf0
+i have working hard with your project please help me and give my reward
 
-problem : can't not verifycation testnet
+# problem : can't not verifycation testnet
+# my detail :
+<p>email subsquid : nruddin7@gmail.com
+<p>email coinlist : karwekenam@gmail.com
+<p>sub email : ariaprianto97@outlook.com
+<p>my wallet testnet : 0xD0060dbfeCfddbf14995288021C91AEA2Ee9abf0
+
+# my personal detail
+<p>discord : roden115#3293
+<p>twitter : @rowjen11
+<p>telegram : @tafuzi
+<p>linkedin : @nashiruddin
+<p>youtube chnnel : https://www.youtube.com/@zizisweet </p>
+
 
 
 
